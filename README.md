@@ -53,7 +53,7 @@
 For any questions, support, or inquiries, feel free to reach out to us on the following platforms:
 
 - **WhatsApp**: [Click here to contact us on WhatsApp](https://wa.me/+8619302312554)
-- **Telegram**: [Click here to contact us on Telegram](https://t.me/@AIOStream)
+- **Telegram**: [Click here to contact us on Telegram](https://t.me/AIOStream)
 
 ---
 
